@@ -1,0 +1,2 @@
+# privacy
+aplicatii parohii
